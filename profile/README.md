@@ -3,7 +3,7 @@
 <a href="https://historyminds.com/activities/">CLICK TO PLAY</a></h3>
 <hr>
 
-<a href="https://historyminds.com/activities/"><img src="https://clearcache.store/games.png"></a>
+<a href="https://historyminds.com/activities/"><img src="https://static.historyminds.com/uploads/Website-Images/DU-6x_88Gq9x.png"></a>
 
 
 **Unblocked Games 76: Fun and Accessible Online Gaming**
