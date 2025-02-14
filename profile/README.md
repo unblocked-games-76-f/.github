@@ -6,7 +6,7 @@
 <a href="https://historyminds.com/activities/"><img src="https://static.historyminds.com/uploads/Website-Images/DU-6x_88Gq9x.png"></a>
 
 
-## **Unblocked Games 76: Fun and Accessible Online Gaming**
+### **Unblocked Games 76: Fun and Accessible Online Gaming**
 Do you want to enjoy games without any restrictions? Historyminds.com is an online platform that offers a wide selection of **free, unblocked games 76**, allowing users to enjoy their favorite **ad-free games** anywhere, including school or work, without restrictions. It covers all gaming preferences with categories ranging from action-packed adventures to relaxing puzzles.
 
 ## **Benefits of Unlocked Games 76**
